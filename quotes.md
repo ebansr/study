@@ -5,6 +5,9 @@
 
 - Repentance is the Lord’s regimen for spiritual growth. [...] Repentance is conversion! A repentant soul is a converted soul, and a converted soul is a repentant soul. ([Repentance and Conversion](https://www.churchofjesuschrist.org/study/general-conference/2007/04/repentance-and-conversion?lang=eng))
 
+## Ezra Taft Benson
+- The Lord works from the inside out. The world works from the outside in. [...] The world would shape human behavior, but Christ can change human nature” ([Born of God](https://www.churchofjesuschrist.org/study/general-conference/1985/10/born-of-god?lang=eng))
+
 ## Boyd K Packer
 - You have to learn to be alone in a crowd. You have to have such control. That is so important. We spend so much time in airports and in other noisy places. But I do not go there. I might be standing there physically, but I am not there spiritually, because I am thinking things and doing things in my mind. If you will learn to do that, then the Spirit will teach you. (Mine Errand from the Lord, 132).
 
