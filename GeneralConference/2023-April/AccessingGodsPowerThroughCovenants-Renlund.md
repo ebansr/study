@@ -40,4 +40,6 @@ In 1938, Lena submitted records so that temple ordinances could be performed for
 
 As you walk the covenant path, from baptism to the temple and throughout life, **I promise you power to go against the natural worldly flow—power to learn, power to repent and be sanctified, and power to find hope, comfort, and even joy as you face life’s challenges. I promise you and your family protection against the influence of the adversary, especially when you make the temple a major focus in your life.**
 
+> How can I make the temple a greater focus in my life? 1. Get a picture of the temple and display it in a prominent location in the house. 2. Schedule dates to go to the temple with Shanna for endowments, initiatory, sealings, and Calvin for baptisms and confirmations. 3. Read and study more about the temple and the covenants we make there. 4. Read and ponder this talk.
+
 As you come to Christ and are connected to Him and our Heavenly Father by covenant, something seemingly unnatural happens. **You are transformed and become perfected in Jesus Christ.27** You become a covenant child of God and an inheritor in His kingdom.28 I can imagine Him saying to you, “Thou art my dear child in whom I delight. Welcome home.” In the name of Jesus Christ, amen.
